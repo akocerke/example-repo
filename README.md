@@ -1,2 +1,2 @@
 # example-repo
- wie der scheiss funktioniert
+ wie der 🤬 wohl funktioniert
